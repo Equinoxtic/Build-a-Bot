@@ -1,0 +1,1 @@
+When You finish making Your own bot, please make it open source. Otherwise I'm gonna spank Your ass LeL
