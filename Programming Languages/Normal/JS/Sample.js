@@ -1,3 +1,0 @@
-{
-    // Write some code ig
-}
